@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @JOEMANFLAME, or Joey
+- 👀 I’m interested in Chemistry
+- 🌱 I’m currently completing my MSc in chemistry
